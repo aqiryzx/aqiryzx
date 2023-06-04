@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @aqiryzx
+- I am 18 years old
+- 👀 I am a linux power user
+- 📫 How to reach me add me here aqiryzx#3130
